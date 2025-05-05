@@ -1,1 +1,1 @@
-# practice-interactiveShopping--Diviya---K-
+# practice-interactiveShopping-Diviya-K
